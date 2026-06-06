@@ -1,1 +1,0 @@
-# SafeTrail.github.io
